@@ -4,6 +4,7 @@ C#  opp  asp.net  .net5  em Visual Studio  2019
 - 💞️ I’m looking to collaborate on ...
 my  colabaração  será  nas  ferramentas  acima.
 - 📫 How to reach me ...meu  contato  fone : +5511961576149  São  Paulo   -  SP 
+- e-mail  nelson.einstein@gmail.com
 
 
 <!---
